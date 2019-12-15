@@ -8,3 +8,7 @@ Class of Information System Management
 - Sleeping
 - Playing Games
 - Acting
+
+![My Photo](/main@2x (1).png)
+---------------------------------------------------
+Please contact me via **luisbroleze@gmail.com
